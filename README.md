@@ -5,9 +5,9 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=parvgupta07" alt="parvgupta07" /></a> </p>
 
-- 📄 Know about my experiences [Resume](https://app.luminpdf.com/viewer/657da419c4f6ed0d20076152)
+- 📫 How to reach me **parvgupta0702@gmail.com**
 
-- 📫 How to reach me [Email](parvgupta0702@gmail.com)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1DL_a-Q5r-TGrajEusnTysWKBOZAOPR86/view?usp=sharing](https://drive.google.com/file/d/1DL_a-Q5r-TGrajEusnTysWKBOZAOPR86/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
